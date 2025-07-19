@@ -1,6 +1,6 @@
 .. raw:: html
  
-    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/">
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
 
 How to Reach My Heritage Customer Care: A Comprehensive Guide 
 ============================================
